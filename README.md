@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Shriru2010
+- 👋 Hi, I’m @Shrirama
 - 👀 I’m interested in computer science and maths
 - 🌱 I’m currently studying in 10th grade
 - 📫 How to reach me - email: shriramar6@gmail.com
